@@ -1,3 +1,3 @@
 # SquidGame
 
-its a funnny game  very vey funny game and very dangerous game in real life 
+its a funnny game  very vey funny game and very dangerous game in real life  good great excellent 
